@@ -6,7 +6,7 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 - i'm poor at coding
-- 
+- I love you pich 
 
 <!---
 HelloHoeurn/HelloHoeurn is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
